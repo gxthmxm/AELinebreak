@@ -8,5 +8,6 @@
 # Credits:
 - Me
 - Me
+- Samurai Network (haha thats me)
 - Just me
 - Haha
