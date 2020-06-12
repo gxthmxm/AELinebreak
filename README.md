@@ -10,6 +10,7 @@
 - Me
 - Samurai Network (haha thats me)
 - Just me
+- Coronux (also me)
 - Haha
 
 Seriously Adobe, why isn't this added to AE by default lol.
