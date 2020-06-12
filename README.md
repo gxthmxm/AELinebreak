@@ -11,3 +11,5 @@
 - Samurai Network (haha thats me)
 - Just me
 - Haha
+
+Seriously Adobe, why isn't this added to AE by default lol.
